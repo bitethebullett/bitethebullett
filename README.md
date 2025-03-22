@@ -9,4 +9,4 @@ i dont have much of a dni i normally just block/hide people i dont like but TCC/
 even if you just like zeroday and arent in the TCC you weird me out .
 
 
-okay thats it for now i might add more to this later but my rentry has a longer list of interests if you care .
+okay thats it for now i might add more to this later but my rentry has some other info if you care .
