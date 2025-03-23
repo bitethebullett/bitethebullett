@@ -1,4 +1,4 @@
-<p align="center">
+
 ## wip sorta ill make this look prettier at some point maybe
 hii im bullet but you can also call me whatever the name of my pony is or whatever my friends are calling me im kinda weird with names .
 
