@@ -4,5 +4,6 @@
 
 ![](https://komarev.com/ghpvc/?username=bitethebullett&color=000100&label=VIEWS&abbreviated=true) 
 
+too lazy to update this to match my pfp </3
 
 </div>
