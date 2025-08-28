@@ -21,4 +21,6 @@ i like messing with colors and often use filters to edit my ponies so my style m
 not exactly a DNI list cause ik thats not stopping anyone but reasons i might have blocked/hid someone : basic stuff(racist , homophobic etc) , using the r slur , making weird jokes in public chats , TCC/zeroday fans , hardcore HH/HB fans , anti furry/therian/otherkin , harrassing anyone for any reason (i dont like proships either but bothering some traumatized kid isnt gonna make it any better) , generative AI users (includes chatbots like c.ai btw)
 
 i sometimes unadd people without warning if we dont talk a lot its nothing personal i just like keeping my friends lists short you can totally add me back if you want to talk again
+
+art credits : [1](https://x.com/Toxic_Tea__/status/1916420817069519159?t=IJnPM3ZkXPziCGFAu5_Ihw) . [2](https://x.com/dog1nwatermelon/status/1915129433591075185/photo/1) . [3](https://www.pinterest.com/pin/130885932904818036/)
 </div>
