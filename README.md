@@ -10,7 +10,7 @@ hi im bullet/hal/whatever you want to call me i dont really care . any pronouns 
 
 fictkin of a lot of characters and also maybe otherkin
 
-i like comics (DC , marvel , & TUA) , roblox , ultrakill , 8:11 , horror in general , and a lot of music (NIN is my favorite though)
+i like comics (DC , marvel , & TUA) , roblox (fandom iwc a lot of yall are freaky) , ultrakill , 8:11 , horror in general , and a lot of music (NIN is my favorite though)
 
 im not very energetic or great at talking to people and might come off as "dry" or disinterested sorry
 
