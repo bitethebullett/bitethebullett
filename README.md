@@ -14,11 +14,10 @@ i like comics (DC , marvel , & TUA) , roblox (fandom iwc a lot of yall are freak
 
 im not very energetic or great at talking to people and might come off as "dry" or disinterested sorry
 
-c+h is fine unless im with a friend . im offtab or semi afk a lot so whisper me if im not replying
-
+c+h is fine unless im with a friend . im offtab or semi afk a lot so whisper me if im not replying .
 i like messing with colors and often use filters to edit my ponies so my style might vary a lot DO NOT COPY ME
 
-not exactly a DNI list cause ik thats not stopping anyone but reasons i might have blocked/hid someone : basic stuff(racist , homophobic etc) , using the r slur , making weird jokes in public chats , TCC/zeroday fans , hardcore HH/HB fans , anti furry/therian/otherkin , harrassing anyone for any reason (i dont like proships either but bothering some traumatized kid isnt gonna make it any better) , generative AI users (includes chatbots like c.ai btw)
+not exactly a DNI list cause ik thats not stopping anyone but reasons i might have blocked/hid someone : basic stuff(racist , homophobic etc) , using the r slur , making weird jokes in public chats , TCC/zeroday fans , hardcore HH/HB fans , anti furry/therian/otherkin , harrassing anyone for any reason (i dont like proships either but telling someone to die isnt helping) , generative AI users (includes chatbots like c.ai btw)
 
 i sometimes unadd people without warning if we dont talk a lot its nothing personal i just like keeping my friends lists short you can totally add me back if you want to talk again
 
