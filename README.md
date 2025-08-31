@@ -1,8 +1,6 @@
 <div align="center">
 
-![](https://files.catbox.moe/00cj8x.png)
-
-![](https://komarev.com/ghpvc/?username=bitethebullett&color=c2110f&label=VIEWS&abbreviated=true) 
+![](https://komarev.com/ghpvc/?username=bitethebullett&color=850305&label=VIEWS&abbreviated=true) 
 
 bio/yap page you dont have to read it all to interact idc
 
@@ -21,5 +19,5 @@ not exactly a DNI list cause ik thats not stopping anyone but reasons i might ha
 
 i sometimes unadd people without warning if we dont talk a lot its nothing personal i just like keeping my friends lists short you can totally add me back if you want to talk again
 
-art credits : [1](https://x.com/Toxic_Tea__/status/1916420817069519159?t=IJnPM3ZkXPziCGFAu5_Ihw) . [2](https://x.com/dog1nwatermelon/status/1915129433591075185/photo/1) . [3](https://www.pinterest.com/pin/130885932904818036/)
+art credits : [1](https://x.com/exxcidio)
 </div>
