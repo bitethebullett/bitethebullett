@@ -15,7 +15,7 @@ im not very energetic or great at talking to people and might come off as "dry" 
 my wifi is really bad so i might disconnect and rejoin a lot . c+h is fine unless im with a friend . im offtab or semi afk a lot so whisper me if im not replying .
 i like messing with colors and often use filters to edit my ponies so my style might vary a lot DO NOT COPY ME
 
-not exactly a DNI list cause ik thats not stopping anyone but reasons i might have blocked/hid someone : basic stuff(racist , homophobic etc) , using the r slur , making weird jokes in public chats , TCC/zeroday fans , hardcore HH/HB fans , anti furry/therian/otherkin , harrassing anyone for any reason (i dont like proships either but telling someone to die isnt helping) , generative AI users (includes chatbots like c.ai btw)
+i block and hide people freely but itll only be temporary unless your REALLY weird
 
 i sometimes unadd people without warning if we dont talk a lot its nothing personal i just like keeping my friends lists short you can totally add me back if you want to talk again
 
