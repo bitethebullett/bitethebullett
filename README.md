@@ -4,7 +4,7 @@
 
 bio/yap page you dont have to read it all to interact idc
 
-hi im bullet/hal/whatever you want to call me i dont really care . any pronouns technically but he/it/they is perferred unless we are close
+hi im bullet/hal/whatever you want to call me i dont really care . any pronouns technically but he/him is perferred unless we are close
 
 fictkin of a lot of characters and also maybe otherkin
 
