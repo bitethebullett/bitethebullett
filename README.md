@@ -8,7 +8,7 @@ hi im bullet/hal/whatever you want to call me i dont really care . any pronouns 
 
 fictkin of a lot of characters and also maybe otherkin
 
-i like comics (DC , marvel , & TUA) , roblox (fandom iwc a lot of yall are freaky) , ultrakill , 8:11 , horror in general , and a lot of music (NIN is my favorite though)
+i like comics (DC , marvel , & TUA) , ultrakill , 8:11 , horror in general , and a lot of music (NIN & MCR are my favs though)
 
 im not very energetic or great at talking to people and might come off as "dry" or disinterested sorry
 
@@ -19,5 +19,4 @@ i block and hide people freely but itll only be temporary unless your REALLY wei
 
 i sometimes unadd people without warning if we dont talk a lot its nothing personal i just like keeping my friends lists short you can totally add me back if you want to talk again
 
-art credits : [1](https://x.com/exxcidio)
 </div>
