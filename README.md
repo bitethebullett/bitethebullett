@@ -12,7 +12,7 @@ i like comics (DC , marvel , & TUA) , ultrakill , 8:11 , horror in general , and
 
 im not very energetic or great at talking to people and might come off as "dry" or disinterested sorry
 
-my wifi is really bad so i might disconnect and rejoin a lot . c+h is fine unless im with a friend . im offtab or semi afk a lot so whisper me if im not replying .
+c+h is fine unless im with a friend . im offtab or semi afk a lot so whisper me if im not replying .
 i like messing with colors and often use filters to edit my ponies so my style might vary a lot DO NOT COPY ME
 
 i block and hide people freely but itll only be temporary unless your REALLY weird
