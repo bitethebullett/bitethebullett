@@ -2,7 +2,7 @@
 
 ![](https://komarev.com/ghpvc/?username=bitethebullett&color=850305&label=freaks&abbreviated=true) 
 
-bio/yap page you dont have to read it all to interact idc
+bio/yap page you dont have to read it all to interact
 
 hi im bullet/hal/whatever you want to call me i dont really care . any pronouns technically but he/him is perferred unless we are close
 
