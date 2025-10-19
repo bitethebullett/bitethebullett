@@ -15,4 +15,5 @@ i like messing with colors and often use filters to edit my ponies so my style m
 
 i block and hide people freely but itll only be temporary unless your REALLY weird
 
+strawpage is a wip dont bother looking at it rn
 </div>
