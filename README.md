@@ -6,7 +6,7 @@ bio/yap page you dont have to read it all to interact
 
 hi im bullet/whatever you want to call me i dont really care . he/him only unless we are close
 
-i like comics , horror in general , and a lot of music , im also getting into limbus company but im only at the start of canto 3 so dont expect me to know a lot
+i like comics , horror in general , a lot of music , and limbus company (idk anything about other project moon stuff sorry)
 
 im not very energetic or great at talking to people and might come off as "dry" or disinterested sorry
 
