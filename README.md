@@ -1,6 +1,6 @@
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=bitethebullett&color=850305&label=freaks&abbreviated=true) 
+![](https://komarev.com/ghpvc/?username=bitethebullett&color=850305&label=sinners&abbreviated=true) 
 
 bio/yap page you dont have to read it all to interact
 
