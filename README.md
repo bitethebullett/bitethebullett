@@ -6,7 +6,7 @@ bio/yap page you dont have to read it all to interact
 
 hi im bullet/whatever you want to call me i dont really care . he/him only unless we are close
 
-i like comics , horror in general , a lot of music , and limbus company (idk anything about other project moon stuff sorry)
+i like comics , horror in general , a lot of music (NIN is my favorite band though) , limbus company (idk anything about other project moon stuff yet sorry) , and some animes
 
 im not very energetic or great at talking to people and might come off as "dry" or disinterested sorry
 
