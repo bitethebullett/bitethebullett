@@ -6,7 +6,7 @@
 
 bio/yap page you dont have to read it all to interact
 
-hi im bullet/whatever you want to call me i dont really care . he/him only unless we are close
+hi im bullet/kin names/whatever you want to call me i dont really care . he/him only unless we are close (they/them is fine if you default to it without thinking ik i do)
 
 i have like a million interests and my main ones change all the time sooo i guess just ask about them if you want a list or something
 
