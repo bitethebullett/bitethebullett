@@ -1,12 +1,14 @@
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=bitethebullett&color=850305&label=sinners&abbreviated=true) 
+![](https://i.pinimg.com/736x/a3/d8/c2/a3d8c2e0b05fe9e6a51ceef574515f8f.jpg)
+
+![](https://komarev.com/ghpvc/?username=bitethebullett&color=afafaf&label=strays&abbreviated=true) 
 
 bio/yap page you dont have to read it all to interact
 
 hi im bullet/whatever you want to call me i dont really care . he/him only unless we are close
 
-i like comics , horror in general , a lot of music (NIN is my favorite band though) , limbus company (idk anything about other project moon stuff yet sorry) , and some animes
+i have like a million interests and my main ones change all the time sooo i guess just ask about them if you want a list or something
 
 im not very energetic or great at talking to people and might come off as "dry" or disinterested sorry
 
