@@ -8,9 +8,9 @@ bio/yap page you dont have to read it all to interact
 
 hi im bullet/kin names/whatever you want to call me i dont really care . he/him only unless we are close (they/them is fine if you default to it without thinking ik i do)
 
-i have like a million interests and my main ones change all the time sooo i guess just ask about them if you want a list or something
+i have like a million interests and my main ones change all the time but rn im mostly into literature in general and minecraft
 
-im not very energetic or great at talking to people and might come off as "dry" or disinterested sorry
+im not very energetic or great at talking to people and might come off as "dry" or disinterested sorry . im homeschooled and kinda taught myself to write please dont correct my spelling errors unless you actually cant understand me 
 
 c+h is fine unless im with a friend . im offtab or semi afk a lot so whisper me if im not replying .
 i like messing with colors and often use filters to edit my ponies so my style might vary a lot . dont copy me
