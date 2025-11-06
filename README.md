@@ -17,7 +17,7 @@ i like messing with colors and often use filters to edit my ponies so my style m
 
 i block and hide people freely but itll only be temporary unless your REALLY weird
 
-i didnt feel the need to put a dni list on here before cause they are kinda pointless but a proshipper followed me so umm yeah leave me alone if you do that
+i didnt feel the need to put a dni list on here before cause they are kinda pointless but a proshipper followed me so umm yeah leave me alone if you do that (im not an "anti either btw i just dont wanna hear about you romanticizing incest ?) 
 
 also i dont mind talking to people of any age but i wont become friends with anyone under 15 
 
