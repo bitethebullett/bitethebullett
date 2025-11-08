@@ -6,9 +6,7 @@
 
 bio/yap page you dont have to read it all to interact
 
-hi im bullet/kin names/whatever you want to call me i dont really care
-
-i have like a million interests and my main ones change all the time but rn im mostly into literature in general and minecraft
+moved some of the more basic info to my strawpage :P
 
 im not very energetic or great at talking to people and might come off as "dry" or disinterested sorry . im homeschooled and kinda taught myself to write so please dont correct my spelling errors unless you actually cant understand me 
 
@@ -17,8 +15,6 @@ i like messing with colors and often use filters to edit my ponies so my style m
 
 i block and hide people freely but itll only be temporary unless your REALLY weird
 
-i didnt feel the need to put a dni list on here before cause they are kinda pointless but a proshipper followed me so umm yeah leave me alone if you do that (im not an "anti" or whatever btw i think dark topics in fiction are fine i just dont wanna hear about you romanticizing incest ?) 
-
-also i dont mind talking to people of any age but i wont become friends with anyone under 15 
+proshippers dni please (im not an "anti" or whatever btw i think dark topics in fiction are fine the issue is romanticizing it) 
 
 </div>
