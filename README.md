@@ -13,7 +13,7 @@ im not very energetic or great at talking to people and might come off as "dry" 
 c+h is fine unless im with a friend . im offtab or semi afk a lot so whisper me if im not replying .
 i like messing with colors and often use filters to edit my ponies so my style might vary a lot . dont copy me
 
-i have some ponies for fandoms that im kinda scared talking to / wouldnt count myself as being in (mha, rblx , hermitcraft) and sometimes make ponies for stuff i dont even know to match with friends so dont assume i know a lot about all the characters my ponies are
+i have some ponies for fandoms that im kinda scared interacting to / wouldnt count myself as being in (mha, rblx , hermitcraft) and sometimes make ponies for stuff i dont even know to match with friends so dont assume i know a lot about all the characters my ponies are
 
 i block and hide people freely but itll only be temporary unless your REALLY weird
 
