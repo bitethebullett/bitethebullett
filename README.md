@@ -13,10 +13,6 @@ im not very energetic or great at talking to people and might come off as "dry" 
 c+h is fine unless im with a friend . im offtab or semi afk a lot so whisper me if im not replying .
 i like messing with colors and often use filters to edit my ponies so my style might vary a lot . dont copy me
 
-i have some ponies for fandoms that im kinda scared interacting with / wouldnt really count myself as being in (mha, rblx, mcyt, hoyoverse) so please iwc if youre in those fandoms
-
 i block and hide people freely but itll only be temporary unless your REALLY weird
-
-proshippers dni please (im not an "anti" or whatever btw i think dark topics in fiction are fine the issue is romanticizing it) 
 
 </div>
