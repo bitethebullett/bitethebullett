@@ -1,6 +1,6 @@
 <div align="center">
 
-![](https://i.pinimg.com/736x/a3/d8/c2/a3d8c2e0b05fe9e6a51ceef574515f8f.jpg)
+![](https://i.pinimg.com/1200x/e9/50/77/e95077fcbc8dfcacb9b6b556c25beeef.jpg)
 
 ![](https://komarev.com/ghpvc/?username=bitethebullett&color=afafaf&label=strays&abbreviated=true) 
 
