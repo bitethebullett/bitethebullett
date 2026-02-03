@@ -15,4 +15,6 @@ i go between changing styles a lot and reusing colors so i might look very diffe
 
 i block and hide people freely but itll only be temporary unless your REALLY weird
 
+[icon credits](https://www.tumblr.com/1800-l0g4n/782289045195784192/them-two-insta-request?source=share)
+
 </div>
