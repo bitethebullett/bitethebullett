@@ -1,6 +1,6 @@
 <div align="center">
 
-![](https://files.catbox.moe/jmoeuw.png)
+![](https://i.pinimg.com/1200x/d6/6f/fc/d66ffcfa2594ebc525762ab80eb51d54.jpg)
 
 ![](https://komarev.com/ghpvc/?username=bitethebullett&color=afafaf&label=strays&abbreviated=true) 
 
@@ -18,6 +18,5 @@ i block and hide people freely but itll only be temporary unless your REALLY wei
 do not interact with me just for ships !! i most likely do not like the same ones as you plus i dont rp so it weirds me out...
 its fine if you want to talk about them but if thats the ONLY thing you want to talk about we will not get along
 
-[icon credits](https://www.tumblr.com/frijolebean/722968782676639744/two-face?source=share)
 
 </div>
