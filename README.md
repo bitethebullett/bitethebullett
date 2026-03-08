@@ -17,4 +17,6 @@ i block and hide people freely but itll only be temporary unless your REALLY wei
 
 do not interact with me just for ships !! i most likely do not like the same ones as you plus i dont rp so it weirds me out...
 
+only really into jjk cause of my friends hardcore fans iwc anime fandoms scare me
+
 </div>
