@@ -4,7 +4,7 @@
 
 bio page thing you dont have to read it to interact though its just a bunch of yap
 
-im offtab or semi afk doing stuff on pt a lot if you dont see me moving its best to whisper to get my attention
+im offtab or semi afk on pt a lot if you dont see me moving its best to whisper to get my attention
 
 im mostly only online if my friends are and probably wont interact with new people first
 
