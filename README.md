@@ -8,7 +8,7 @@ im offtab or semi afk on pt a lot if you dont see me moving its best to whisper 
 
 im mostly only online if my friends are and probably wont interact with new people first
 
-i have periods of anhedonia where i will have dry responses if any dont take it personally 
+sometimes a dry texter dont take it personally i just cant always hold conversations
 
 do not make fun of/point out/correct my spelling/grammar errors unless we are close i had to teach myself so im trying my best
 
