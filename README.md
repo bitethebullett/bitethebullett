@@ -14,5 +14,4 @@ do not make fun of/point out/correct my spelling/grammar errors unless we are cl
 
 other basic info + interests are on my strawpage 
 
-[icon credits](https://www.tumblr.com/tomatoart/713507945887023104/when-ur-circle-small-but-yall-crazy?source=share)
 </div>
