@@ -1,6 +1,8 @@
 <div align="center">
+  
+![](https://files.catbox.moe/lx48bq.png)
 
-![](https://komarev.com/ghpvc/?username=bitethebullett&color=afafaf&label=strays&abbreviated=true) 
+![](https://komarev.com/ghpvc/?username=bitethebullett&color=f9903d&label=strays&abbreviated=true) 
 
 bio page thing you dont have to read it to interact though its just a bunch of yap
 
