@@ -16,4 +16,6 @@ do not make fun of/point out/correct my spelling/grammar errors unless we are cl
 
 turning 18 soon might be on 18+ sometimes to hangout with my friends but i wont speak to randoms on there till my birthday 
 
+first rentry is just mine second one is matching with bro (and he made it)
+
 </div>
