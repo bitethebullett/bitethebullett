@@ -18,4 +18,6 @@ turning 18 soon might be on 18+ sometimes to hangout with my friends but i wont 
 
 first rentry is just mine second one is matching with bro (and he made it)
 
+i only follow back my close friends on this account :P
+
 </div>
