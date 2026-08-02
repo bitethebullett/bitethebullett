@@ -8,7 +8,7 @@ im offtab or semi afk on pt a lot if you dont see me moving its best to whisper 
 
 sometimes a dry texter dont take it personally i just cant always hold conversations
 
-turning 18 in like 19 days i will be on 18+ sometimes to hangout with my friends but i wont speak to people i dont know yet to respect their boundaries 
+turning 18 in like 19 days i will be on 18+ sometimes to hangout with my friends but i wont speak to people i dont know yet
 
 first rentry is just mine second one is matching with bro (and he made it)
 
