@@ -1,6 +1,8 @@
 <div align="center">
-  
-![](https://komarev.com/ghpvc/?username=bitethebullett&color=2f5272&label=strays&abbreviated=true) 
+
+<img src=https://files.catbox.moe/4f77of.gif />  
+
+![](https://komarev.com/ghpvc/?username=bitethebullett&color=93211f&label=life_grip_saves&abbreviated=true) 
 
 bio page thing you dont have to read it to interact though its just a bunch of yap
 
@@ -10,8 +12,6 @@ sometimes a dry texter dont take it personally i just cant always hold conversat
 
 turning 18 in like 19 days i will be on 18+ sometimes to hangout with my friends but i wont speak to people i dont know yet
 
-first rentry is just mine second one is matching with bro (and he made it)
-
-[icon credits](https://x.com/kanyoben/status/1726218727044358613/photo/1)
+layout by @KIRlKO on here oooo you want to commission him so bad
 
 </div>
