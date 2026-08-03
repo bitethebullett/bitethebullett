@@ -12,6 +12,6 @@ sometimes a dry texter dont take it personally i just cant always hold conversat
 
 turning 18 in like 19 days i will be on 18+ sometimes to hangout with my friends but i wont speak to people i dont know yet
 
-layout by @KIRlKO on here oooo you want to commission him so bad
+layout by [@KIRlKO](https://github.com/KIRlKO) on here oooo you want to commission him so bad
 
 </div>
