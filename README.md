@@ -10,7 +10,7 @@ im offtab or semi afk on pt a lot if you dont see me moving its best to whisper 
 
 sometimes a dry texter dont take it personally i just cant always hold conversations
 
-turning 18 in 2 days i will be on 18+ sometimes to hangout with my friends but i wont speak to people i dont know yet
+im 18 i dont mind minors interacting briefly but wont friend anyone under 16
 
 layout by [@KIRlKO](https://github.com/KIRlKO) on here oooo you want to commission him so bad
 
