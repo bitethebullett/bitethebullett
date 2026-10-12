@@ -10,7 +10,7 @@ im offtab or semi afk on pt a lot if you dont see me moving its best to whisper 
 
 sometimes a dry texter dont take it personally i just cant always hold conversations
 
-im 18 i dont mind minors interacting briefly but wont friend anyone under 16
+im 18 i dont mind minors interacting briefly(if i am on the safe server) but wont friend anyone under 16
 
 layout by [@KIRlKO](https://github.com/KIRlKO) on here oooo you want to commission him so bad
 
